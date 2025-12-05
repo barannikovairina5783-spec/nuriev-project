@@ -1,3 +1,3 @@
 # netology_lessons
-devops lesson for git
-
+devops lesson for gibasdbasdja
+jadsfjhsdfjkhsdkfjha
